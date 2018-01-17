@@ -6,11 +6,11 @@
 Noriz, K. *Bajoran resistence to the Cardassian occupy
 
 **Week 2**
-Suttles, J. *Cultivation of the foolish
+Suttles, J. *Cultivation of the foolish  
 
-**Week 3**
-West, C. *Black Magic
-**Week 4**
-Newton, H.  Black Panthers
-**Week 5**
-Johnson, U.  Pan Africanism
+**Week 3**  
+West, C. *Black Magic  
+**Week 4**  
+Newton, H.  Black Panthers  
+**Week 5**  
+Johnson, U.  Pan Africanism  
